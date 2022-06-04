@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Shashank u can find me with-->   @shanky3189
 - 👀 I’m interested in AIML Projetcs...
-- 🌱 I’m currently learning and looking forward to share learnings from all
+- 🌱 I’m currently learning and looking forward to share learnings with all
 
 - 📫 How to reach me ... shankshine@gmail.com
 
